@@ -1,0 +1,2 @@
+## About US
+<b>PT. Naureen Digital Education</b> merupakan sebuah perusahaan penerbitan (buku dan jurnal ilmiah), E-Course, serta Media Penunjang Pembelajaran. Kami berkomitmen untuk terus menebar dan menyebarluaskan manfaat bagi khalayak.
